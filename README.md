@@ -1,1 +1,1 @@
-its а top kazakhstan project 
+its а top kazakhstan project!
